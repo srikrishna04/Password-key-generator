@@ -1,1 +1,1 @@
-emeregency automated strong password
+emergency automated strong password
